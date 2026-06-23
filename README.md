@@ -8,4 +8,4 @@
 > Basicaly i'm not doing so much here. Sometimes, just want to spend my free time.
 
 #### About Me
-> Currently working as "Pengangguran Internasional"
+> CEO of personal development
