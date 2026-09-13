@@ -5,7 +5,7 @@
 
 [![An image of @cacing69's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/cacing69)](https://holopin.io/@cacing69)
 
-> Basicaly i'm not doing so much here. Sometimes, just want to spend my free time.
+> Making valid bugs since 2017
 
 #### About Me
-> CEO of personal development
+> Fall Stuck Developer
